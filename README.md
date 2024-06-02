@@ -1,7 +1,7 @@
 # cls区2022全新地址1地址22022忘忧草wyc研究所
 原来城里娃都藏这儿来了怪不得平时见中
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+<a href="https://github.com/getmal/fdwwt/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 cls区2022全新地址1地址22022忘忧草wyc研究所　　走过去，发廊一家挨着一家，小姐一个接着一个，招唤一声接着一声，偶尔也有推门入室的主儿。
 　　“归正我非去不行!”路克说。他要真是米老鼠，他也会这么做的。
